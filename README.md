@@ -1,3 +1,1 @@
-# INSTALLATION
 
-bir şeyler işte
